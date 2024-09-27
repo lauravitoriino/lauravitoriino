@@ -1,4 +1,4 @@
-##🏅0lá,meu nome é laura 
+## 0lá,meu nome é laura 
 
 -✨️Eu sou aluna do Alura 
 -🎀Sou estudante do iglea grollmann
