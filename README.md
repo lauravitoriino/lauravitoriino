@@ -1,6 +1,6 @@
 ## 0lá,meu nome é laura 
 
--✨️Eu sou aluna do Alura 
+-Eu sou aluna do Alura 🐱
 -🎀Sou estudante do iglea grollmann
 -🎆amo gatos
 -🐱meu insta é vitorino.lauraa
