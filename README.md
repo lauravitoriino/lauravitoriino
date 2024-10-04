@@ -2,11 +2,11 @@
 
 - 🐈‍⬛Eu sou aluna do Alura
 - 🎀Sou estudante do iglea
-- 🎆amo cachorros
-- 🐱meu insta é vivii
-- 🧋minha cor favorita é preto
-- 🔥odeio sair com os meus amigos
--🫧minha serie favorita é bridgerton
-vrvttbnyynyntbtbtbtbtbtb
-trolada
-da proxima fecha a conta
+- 🎆amo gatos
+- 🐱meu insta é vitorino.lauraa
+- 🧋minha cor favorita é rosa
+- 🔥amo sair com os meus amigos
+- 👰‍♀️meu filme favorito é Noiva Cadáver
+- 🎦gosto de ir ao cinema
+- ![](https://media1.tenor.com/m/f4PUj7wUIm4AAAAC/cat-tongue.gif)
+- 
