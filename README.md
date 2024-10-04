@@ -1,7 +1,7 @@
 ## 0lá,meu nome é laura 
 
 - 🐈‍⬛Eu sou aluna do Alura
-- 🎀Sou estudante do iglea
+- 🎀Sou estudante do Iglea
 - 🎆amo gatos
 - 🐱meu insta é vitorino.lauraa
 - 🧋minha cor favorita é rosa
